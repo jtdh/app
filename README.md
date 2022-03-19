@@ -37,32 +37,56 @@
 
 
 
-## 麻豆传媒-果冻传媒-蜜桃影像传媒-皇家华人-台湾SWAG-台湾JVID-麻豆APP
-
-- `国产大厂官方第一手更新，优质制片最全最快，大活动来袭！`
-- `扫码&识别直达`
-
-[![img](https://camo.githubusercontent.com/f466c200fc6caeaa5cf6e5ab7b071cbb06219e834d8c2930da68090eeaca5c68/68747470733a2f2f696d6736382e706978686f73742e746f2f696d616765732f31352f3236343337353731315f2e706e67)](https://camo.githubusercontent.com/f466c200fc6caeaa5cf6e5ab7b071cbb06219e834d8c2930da68090eeaca5c68/68747470733a2f2f696d6736382e706978686f73742e746f2f696d616765732f31352f3236343337353731315f2e706e67)
 
 
+| 成人精品论坛                                                |                                                    |                                               |                                  ⭐⭐⭐⭐⭐              |
+| --------------------------------------------------- | :----------------------------------------------------------: | :---------------------------------------------------: | :----------------------------------------------------------: |
+| AvCar成人论坛_老司机汇集地     | [最新地址①](http://bwur7438ef.xyz:6323/forum.php?x=6391471) | [最新地址②](http://dd.ma/jCcKhLYB) | 老司机交流飙车区|
+| VR高清大社区    | 夫妻交流讨论 | 伪娘交流讨论 | 老司机兴趣圈子区 |
+|      |  |  | |
+|      |  |  | |
+|      |  |  | |
+| 哔哩兔-最大的ACG资源站                | [最新地址①](http://biliacg220.xyz:8998/forum.php?x=720132) | [最新地址②](http://dd.ma/v0F94YYC) | ACG游戏 |
+| 二次元资源汇集                | 声音资源/MMD专区 | 动漫里番/图书/剧场 | 福利姬/cos |
 
-- ##### 麻豆TV | 强档节目不间断轮播
-
-- ##### 麻豆频道 | 情色生活一手掌握
-
-- ##### 麻豆原创 | 华语AV开拓先驱
-
-- ##### 麻豆女神 | 优质严选，华人女优
-
-[![img](https://camo.githubusercontent.com/7cc1314f9bc6152d359ade9b593017bb971e0163f00db3c6c0f32d16934554a2/68747470733a2f2f632e726164696b616c2e72752f6330352f323230322f62622f3861306131393133636265352e6a7067)](https://camo.githubusercontent.com/7cc1314f9bc6152d359ade9b593017bb971e0163f00db3c6c0f32d16934554a2/68747470733a2f2f632e726164696b616c2e72752f6330352f323230322f62622f3861306131393133636265352e6a7067)
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;
 
 
+| 福利APP推荐                                                |         所有精品                                           |           一网打尽！                                    |                ⭐⭐⭐⭐⭐                                |
+| --------------------------------------------------- | :----------------------------------------------------------: | :---------------------------------------------------: | :----------------------------------------------------------: |
+| [91聚合平台app_成人版抖音](https://v.hallo365.top/) |          [海量诱惑短视频](https://v.hallo365.top/)           |          [软嫩萝莉](https://v.hallo365.top/)          |         [最新国产大厂制片](https://v.hallo365.top/)          |
+| [世界AV聚合平台](https://v.hallo365.top/) |            [脱衣直播区](https://v.hallo365.top/)             |     [成熟御姐](https://v.hallo365.top/)      |             [空投女友](https://v.hallo365.top/)              |
+| [18+动漫天堂](https://v.hallo365.top/) |           [黄漫热番](https://v.hallo365.top/)    |   [优质中字](https://v.hallo365.top/)              |       [91网友交流热论](https://v.hallo365.top/)   
+|  [全国本地楼凤聚合平台](https://v.hallo365.top/)    | [洗浴按摩](https://v.hallo365.top/)| [同城约会](https://v.hallo365.top/) | [同城小姐](https://v.hallo365.top/)|
+| [91认证-楼凤兼职](https://v.hallo365.top/)| [外围模特](https://v.hallo365.top/)| [高端伴游](https://v.hallo365.top/)| [情人包养](https://v.hallo365.top/)| 
 
-# 快猫视频
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;
 
-- `扫码&识别直达`
+| 正规交友平台                                                |      真诚真实交友请入                                              |                                               |                                 ⭐⭐⭐⭐⭐               |
+| --------------------------------------------------- | :----------------------------------------------------------: | :---------------------------------------------------: | :----------------------------------------------------------: |
+|   [正规-同城无任何套路](https://service-4ea859kc-1251928977.gz.apigw.tencentcs.com/release/APIGWWebPageDemo-162148323738373jrty13x?user=aHR0cHM6Ly9oNS5ncmFiY2hhdGFwcC5jb20vTWluZS9JbnZpdGVNYWxlLmFzcHg/Y2hhbm5lbENvZGU9QzEwMDMmSUQ9NzMzNjkwMg==-7336902)   | [正规-附近真实交友](https://service-4ea859kc-1251928977.gz.apigw.tencentcs.com/release/APIGWWebPageDemo-162148323738373jrty13x?user=aHR0cHM6Ly9oNS5ncmFiY2hhdGFwcC5jb20vTWluZS9JbnZpdGVNYWxlLmFzcHg/Y2hhbm5lbENvZGU9QzEwMDMmSUQ9NzMzNjkwMg==-7336902)| [正规-交友语音聊天](https://service-4ea859kc-1251928977.gz.apigw.tencentcs.com/release/APIGWWebPageDemo-162148323738373jrty13x?user=aHR0cHM6Ly9oNS5ncmFiY2hhdGFwcC5jb20vTWluZS9JbnZpdGVNYWxlLmFzcHg/Y2hhbm5lbENvZGU9QzEwMDMmSUQ9NzMzNjkwMg==-7336902) |[正规-交友视频聊天](https://service-4ea859kc-1251928977.gz.apigw.tencentcs.com/release/APIGWWebPageDemo-162148323738373jrty13x?user=aHR0cHM6Ly9oNS5ncmFiY2hhdGFwcC5jb20vTWluZS9JbnZpdGVNYWxlLmFzcHg/Y2hhbm5lbENvZGU9QzEwMDMmSUQ9NzMzNjkwMg==-7336902) |
+|    [正规-国内男女交友](https://service-4ea859kc-1251928977.gz.apigw.tencentcs.com/release/APIGWWebPageDemo-162148323738373jrty13x?user=aHR0cHM6Ly9oNS5ncmFiY2hhdGFwcC5jb20vTWluZS9JbnZpdGVNYWxlLmFzcHg/Y2hhbm5lbENvZGU9QzEwMDMmSUQ9NzMzNjkwMg==-7336902)  | [正规-国际男女交友](https://service-4ea859kc-1251928977.gz.apigw.tencentcs.com/release/APIGWWebPageDemo-162148323738373jrty13x?user=aHR0cHM6Ly9oNS5ncmFiY2hhdGFwcC5jb20vTWluZS9JbnZpdGVNYWxlLmFzcHg/Y2hhbm5lbENvZGU9QzEwMDMmSUQ9NzMzNjkwMg==-7336902)| [正规交友-男生进入](https://service-4ea859kc-1251928977.gz.apigw.tencentcs.com/release/APIGWWebPageDemo-162148323738373jrty13x?user=aHR0cHM6Ly9oNS5ncmFiY2hhdGFwcC5jb20vTWluZS9JbnZpdGVNYWxlLmFzcHg/Y2hhbm5lbENvZGU9QzEwMDMmSUQ9NzMzNjkwMg==-7336902) | [正规交友-女生进入](https://service-4ea859kc-1251928977.gz.apigw.tencentcs.com/release/APIGWWebPageDemo-162148323738373jrty13x?user=aHR0cHM6Ly9oNS5ncmFiY2hhdGFwcC5jb20vTWluZS9JbnZpdGVNYWxlLmFzcHg/Y2hhbm5lbENvZGU9QzEwMDMmSUQ9NzMzNjkwMg==-7336902)|
+| 注意下载选项👉                                                |      请选：通过第三方浏览器下载                                              |                                        快速直达       |        国外男女聊天，练口语请进                                        |
 
-![img](https://img69.pixhost.to/images/34/269647017_.jpg)
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;
 
-[网页在线](http://dd.ma/Ni8dIc6K)
+**实时更新地址 汇总版 👇👇👇**
+
+> 汇总网址： [`发车论坛导航大全|动漫二次元ACG导航大全|磁力导航大全_bt导航_磁力站大全| 尽头导航_磁力终点导航github | 照亮狼家`](https://jintou.gitbook.io) https://jintou.gitbook.io
+
+> 汇总网址： [`备用网址`](https://github.com/jtdh/jtdh/) https://github.com/jtdh/jtdh
+
+
+
+
+
+
+
+
+
+
+
+
+
+
 
